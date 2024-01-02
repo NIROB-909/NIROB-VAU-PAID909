@@ -3,5 +3,5 @@
 #তর টিম কে আন্তর্জাতিক ভাবে চুদি 
 
 import os
-import NIROB-VAU-PAID909
+import NIROB_VAU-PAID909
 NIROB-VAU-PAID909.loging()
